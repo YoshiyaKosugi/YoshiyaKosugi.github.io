@@ -1,0 +1,1 @@
+# YoshiyaKosugi.github.io
